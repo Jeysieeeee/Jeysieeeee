@@ -10,7 +10,7 @@
   
   Twitter: @JeanGuarra
   
-  Telegram: @jinkarla![353372787_636177535232635_4282254929324673176_n](https://github.com/Jeysieeeee/Jeysieeeee/assets/125857816/b2729923-62b2-49a1-85fd-eebccaa98cc3)
+  Telegram:[353372787_636177535232635_4282254929324673176_n](https://github.com/Jeysieeeee/Jeysieeeee/assets/125857816/b2729923-62b2-49a1-85fd-eebccaa98cc3)
 
   
 Feel free to explore my repositories and projects on GitHub. I'm always open to connecting with fellow developers and exploring new opportunities. Happy coding!
